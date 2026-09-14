@@ -1,0 +1,1 @@
+# snagit-macos.github.io
